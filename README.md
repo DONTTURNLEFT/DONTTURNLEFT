@@ -2,7 +2,7 @@
 <img align="left" width="250" height="550" src="https://i.postimg.cc/PqRSCKhr/Untitled2116-20251030202138.png">
 <p align="left"> ㅤㅤㅤㅤㅤ- ㅤ🍀ㅤ-</p>
 <p align="left"><i>avery</i>ㅤㅤㅤㅤ
-<a href="rentry.co/seraphiel_here">๑</a><b> ㅤㅤㅤㅤㅤfen</b>
+<a href="https://rentry.co/seraphiel_here">๑</a><b> ㅤㅤㅤㅤㅤfen</b>
 </p>
 <p align="left">ㅤㅤㅤㅤㅤㅤ  ------ㅤㅤㅤ</p>
 <p align="left">ㅤㅤㅤshe ㅤㅤㅤㅤhymn </p>
