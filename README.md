@@ -5,7 +5,8 @@
 <p align="left"><i>avery</i>ㅤㅤㅤㅤ
 <a href="https://rentry.co/seraphiel_here">๑</a><b> ㅤㅤㅤㅤㅤfen</b>
 </p>
-<p align="left">ㅤㅤㅤㅤㅤㅤ  ------ㅤㅤㅤ</p>
+
+ㅤㅤㅤ  -ㅤ <img align="center" width="67" height="100" src="https://i.postimg.cc/8kdzX294/Untitled2076-20251101002802.png">ㅤ -
 <p align="left">ㅤㅤㅤshe ㅤㅤㅤㅤhymn </p>
 <p align="left">ㅤㅤㅤㅤㅤㅤ  - 𓂐 -ㅤㅤ</p>
 <p align="left"> ㅤㅤㅤㅤㅤ ㅤ<a href="https://jophieloftricolour.atabook.org/">i</a>ㅤ <a href="https://drive.google.com/drive/folders/1Zv7eBKziKf5Rb_IhlFNFxMizdhn3lYwk">ii</a></p>
