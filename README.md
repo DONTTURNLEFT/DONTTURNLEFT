@@ -11,4 +11,4 @@
 <p align="left">ㅤㅤㅤㅤㅤㅤ  - 𓂐 -ㅤㅤ</p>
 <p align="left"> ㅤㅤㅤㅤㅤ ㅤ<a href="https://jophieloftricolour.atabook.org/">i</a>ㅤ <a href="https://drive.google.com/drive/folders/1Zv7eBKziKf5Rb_IhlFNFxMizdhn3lYwk">ii</a></p>
 
-<img align="left" width="250" height="550" src="https://i.postimg.cc/3JftVHrz/Untitled2120-20251030224108.png">
+<img align="left" width="190" height="530" src="https://i.postimg.cc/3JftVHrz/Untitled2120-20251030224108.png"> 
